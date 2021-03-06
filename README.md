@@ -17,7 +17,7 @@ After class is done I will do my work and eat a snack.
 
 After all my classes are done I will get ready to go outside if I have to. 
 
-Lastly if it is thursday or Friday I have cook and clean until I am done and then my day is over. 
+Lastly if it is Thursday or Friday I have cook and clean until I am done and then my day is over. 
 
 But yea hope you guys have a wonderful day, You are loved, I don´t know if you needed to hear this but I am proud of you and keep going,
 tommorow is a better day. 
