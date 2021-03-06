@@ -11,11 +11,13 @@ my brothers cat.
 
 I did track, I am still in the team, we just don´t meet due to CORONA but it is ok. 
 
-My morning scedule is wake up before school starts to be prepared for class
+My morning scedule is wake up before school starts to be prepared for class.
 
-After class is done I will do my work and eat a snack 
+After class is done I will do my work and eat a snack.
 
-After all my classes are doone I will get ready to go outside if I have to, cook or clean until my day is over. 
+After all my classes are done I will get ready to go outside if I have to. 
+
+Lastly if it is thursday or Friday I have cook and clean until I am done and then my day is over. 
 
 But yea hope you guys have a wonderful day, You are loved, I don´t know if you needed to hear this but I am proud of you and keep going,
 tommorow is a better day. 
